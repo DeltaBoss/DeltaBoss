@@ -1,3 +1,3 @@
-Deniz Schmidt
-researcher @ITL @TUHH
-deniz.schmidt@tuhh.de
+Deniz Schmidt  
+researcher @ITL @TUHH  
+deniz.schmidt@tuhh.de  
